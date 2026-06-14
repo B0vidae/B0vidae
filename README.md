@@ -12,14 +12,6 @@
 <p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a>
 </div>
 
-Hello, I'm Albert! I love interacting with people and I'm always down for making new friends. I can be awkward with approaching people first though...Gulp... 
-
-
-If you see me around PonyTown and try to talk to me and I don't respond, it's probably because I'm AFK!  I'm trying to be more active though, feel free to come up to me or send a whisper, I promise I won't bite :D
-
-</div> <div align="center">
-
-
  </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
 
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a> 

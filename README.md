@@ -9,11 +9,10 @@
 <p align="Center"> ✧ Interests Include: The Isle, PHM, Iron Lung, Marvel, Resident Evil, The Quarry, Frankenstein, Cloverfield, FNaF, DBD & Doctor Who.
 </div>
 
-<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a>
+<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests </a>
 </div>
 
- </div> <div align="center"> <a href="https://rentry.org/VenomsInterestss"> Information About My Interests :D </a>
-
+<p align="Center">
 𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a> 
 </div> 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀

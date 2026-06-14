@@ -23,10 +23,8 @@
 </div> <div align="center">
 
 
-</div> 𝗗𝗡𝗜: Basic DNI, Proshippers/Dark Shippers (Whatever tf you wanna call yourselves), People Who Joke About SA, Minors, People Who Can't Communicate Properly or  Talk Highly of Communication But Never Do It, Shit-Stirrers, SHED Twitter people.
+</div> 𝗗𝗡𝗜: Basic DNI, People Who Joke About SA, Minors, People Who Can't Communicate Properly, SHED Twitter.
 
 </div> <div align="center">
-
-</div> <div align="center"> <a href="https://open.spotify.com/track/5ZSkaSivPY609sNv5MSaux?si=e33e5f07d80044d3">❝Ich hasse dich, ich liebe dich❞</a>
 
 </div> <div align="center">

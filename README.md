@@ -1,3 +1,5 @@
+![Views Counter](https://komarev.com/ghpvc/?username=b0vidae)
+  
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
  
 

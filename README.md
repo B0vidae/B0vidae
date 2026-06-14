@@ -22,7 +22,7 @@
 </div> <div align="center">
 
 
-</div> 𝗗𝗡𝗜: Basic DNI, People Who Joke About SA, Minors, People Who Can't Communicate Properly, SHED Twitter.
+</div> <p align="Center"> 𝗗𝗡𝗜: Basic DNI, People Who Joke About SA, Minors, People Who Can't Communicate Properly, SHED Twitter.
 
 </div> <div align="center">
 

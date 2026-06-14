@@ -2,7 +2,7 @@
  
 
 
-<p align="Center"> @ B0vidae ⸝⸝ Albert
+<p align="Center"> ♯ @ B0vidae ⸝⸝ Albert
   </div>
 <p align="Center"> W2I or Sign Atabook! I'm not always at my pc/on pt. Always open to making friends tho!
   </div>

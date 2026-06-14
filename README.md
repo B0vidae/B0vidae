@@ -4,9 +4,9 @@
 
 <p align="Center"> ♯ @ B0vidae ⸝⸝ Albert
   </div>
-<p align="Center"> W2I or Sign Atabook! I'm not always at my pc/on pt. Always open to making friends tho!
+<p align="Center"> ⌗ W2I or Sign Atabook! I'm not always at my pc/on pt. Always open to making friends tho!
   </div>
-<p align="Center"> Interests Include: The Isle, PHM, Iron Lung, Marvel, Resident Evil, The Quarry, Frankenstein, Cloverfield, FNaF, DBD & Doctor Who.
+<p align="Center"> ✧ Interests Include: The Isle, PHM, Iron Lung, Marvel, Resident Evil, The Quarry, Frankenstein, Cloverfield, FNaF, DBD & Doctor Who.
 </div>
 
 <p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a>

@@ -4,27 +4,16 @@
  
 
 
-<p align="Center"> ♯ @ B0vidae ⸝⸝ Albert
+<p align="Center"> ♯ @ 𝐵𝟢𝓋𝒾𝒹𝒶𝑒 ⸝⸝ 𝒜𝓁𝒷𝑒𝓇𝓉 
   </div>
-<p align="Center"> ⌗ W2I or Sign Atabook! I'm not always at my pc/on pt. Always open to making friends tho!
+<p align="Center"> 𝒲𝟤𝐼, 𝐼 𝒶𝒻𝓀 𝓈𝑜𝓂𝑒𝓉𝒾𝓂𝑒𝓈
   </div>
-<p align="Center"> ✧ Interests Include: The Isle, PHM, Iron Lung, Marvel, Resident Evil, The Quarry, Frankenstein, Cloverfield, FNaF, DBD & Doctor Who.
+<p align="Center"> ⌗ <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">𝑀𝓎 𝒮𝓅𝑜𝓉𝒾𝒻𝓎 𝒫𝓁𝒶𝓎𝓁𝒾𝓈𝓉𝓈</a> </div> 
 </div>
 
-<p align="Center"> <a href="https://rentry.org/venomsparx">Rentry</a> > <a href="https://venomsparx.straw.page">Strawpage</a> > <a href="https://escortingmen.atabook.org">AtaBook</a> > <a href="https://rentry.org/VenomsInterestss"> Information About My Interests </a>
+<p align="Center"> <a href="https://venomsparx.straw.page">𝒮𝓉𝓇𝒶𝓌𝓅𝒶𝑔𝑒</a> + <a href="https://rentry.org/VenomsInterestss">𝐼𝓃𝓉𝑒𝓇𝑒𝓈𝓉𝓈</a>
 </div>
-
-<p align="Center">
-𝗘𝘅𝘁𝗿𝗮: I like making playlists of characters + ships I like!! <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">Check out here if youre interested :D</a> 
-</div> 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-</div> <div align="center">
-
-</div> <div align="center">
-
-
-</div> <p align="Center"> 𝗗𝗡𝗜: Basic DNI, People Who Joke About SA, Minors, People Who Can't Communicate Properly, SHED Twitter.
 
 </div> <div align="center">
 

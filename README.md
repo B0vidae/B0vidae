@@ -6,7 +6,7 @@
 
 <p align="Center"> ♯ @ 𝐵𝟢𝓋𝒾𝒹𝒶𝑒 ⸝⸝ 𝒜𝓁𝒷𝑒𝓇𝓉 ˖ 𝓌₂ᵢ
   </div>
-<p align="Center"> ᴡ2ɪ, ɪ ᴀꜰᴋ ꜱᴏᴍᴇᴛɪᴍᴇꜱ
+<p align="Center">
   </div>
 <p align="Center"> <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">𝑀𝓎 𝒮𝓅𝑜𝓉𝒾𝒻𝓎 𝒫𝓁𝒶𝓎𝓁𝒾𝓈𝓉𝓈</a>
 </div>

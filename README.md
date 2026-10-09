@@ -6,9 +6,9 @@
 
 <p align="Center"> ♯ @ 𝐵𝟢𝓋𝒾𝒹𝒶𝑒 ⸝⸝ 𝒜𝓁𝒷𝑒𝓇𝓉 
   </div>
-<p align="Center"> 𝒲𝟤𝐼, 𝐼 𝒶𝒻𝓀 𝓈𝑜𝓂𝑒𝓉𝒾𝓂𝑒𝓈
+<p align="Center"> ᴡ2ɪ, ɪ ᴀꜰᴋ ꜱᴏᴍᴇᴛɪᴍᴇꜱ
   </div>
-<p align="Center"> ⌗ <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">𝑀𝓎 𝒮𝓅𝑜𝓉𝒾𝒻𝓎 𝒫𝓁𝒶𝓎𝓁𝒾𝓈𝓉𝓈</a>
+<p align="Center"> <a href="https://open.spotify.com/user/rxjagkmip1jrr6iilfjnj8k22?si=10f5c11e11f242e0">𝑀𝓎 𝒮𝓅𝑜𝓉𝒾𝒻𝓎 𝒫𝓁𝒶𝓎𝓁𝒾𝓈𝓉𝓈</a>
 </div>
 
 <p align="Center">‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎‎‎  <a href="https://venomsparx.straw.page">𝒮𝓉𝓇𝒶𝓌𝓅𝒶𝑔𝑒</a> + <a href="https://rentry.org/VenomsInterestss">𝐼𝓃𝓉𝑒𝓇𝑒𝓈𝓉𝓈</a>

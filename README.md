@@ -2,6 +2,7 @@
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
  
+</div> <div align="center">  <img width="793" height="529" alt="Zrzut_ekranu_2026-03-07_185325" src="https://github.com/user-attachments/assets/04f49cc5-09b6-42e8-be6c-526088c74f81" />
 
 
 <p align="Center"> ♯ @ 𝐵𝟢𝓋𝒾𝒹𝒶𝑒 ⸝⸝ 𝒜𝓁𝒷𝑒𝓇𝓉 ₊ 𝓌₂ᵢ
